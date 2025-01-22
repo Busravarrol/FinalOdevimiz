@@ -148,6 +148,7 @@ Blog yazılarımızı eklediğimiz, düzenlediğimiz ve güncellediğimiz kısı
 ![tempImageDShejw remini-enhanced](https://github.com/user-attachments/assets/701ae877-632f-4244-afeb-cc68bf2394b5)
 
 Youtube video linkim: https://www.youtube.com/watch?v=jXLMlBcggsA
+EKİP ÜYELERİ: 132030034-BÜŞRA VAROL / 132030012-TUĞÇE YALÇIN
 
 
 
